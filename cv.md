@@ -20,6 +20,12 @@ I love learning new things
 
 # Experience
 
-2019 - 2020 QA
+2019 - now QA
 
+# Education
 
+2015-2019 The Academy of Public Administration under the aegis of the President of the Republic of Belarus
+
+# English
+
+B1
