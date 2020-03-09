@@ -36,7 +36,6 @@ Period | Organization
 ------------ | -------------
 2015-2019 | The Academy of Public Administration under the aegis of the President of the Republic of Belarus
 
-2015-2019 The Academy of Public Administration under the aegis of the President of the Republic of Belarus
 
 # English
 
